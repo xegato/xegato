@@ -4,6 +4,6 @@ Hope you enjoy my stuff, and don't fret to interact.
 
 ## Social Media
 
-[Art Clubs](https://artclubs.net/samphy
+[Art Clubs](https://artclubs.net/samphy)
 [Twitter](https://twitter.com/_samphy)
 [YouTube](https://youtube.com/@samphy)
